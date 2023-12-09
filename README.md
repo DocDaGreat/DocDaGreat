@@ -4,10 +4,10 @@ wsg my name is doc,
 
 **Spongebob 4 life**
 
-**100% gangsta**
+**making the best planes**
 
 **#evilgang**
 
-**r/jailbreak**
+**r/jailbreak 🐟**
 
-**always comin in first place🥇**
+**h**
